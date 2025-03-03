@@ -1,1 +1,1 @@
-"Hi! Ya na Gite!" 
+"Hi! Ya snova na Gite!" 
